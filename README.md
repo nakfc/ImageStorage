@@ -9,7 +9,7 @@
 ------
 ![](https://raw.githubusercontent.com/nakfc/ImageStorage/main/PicGo2024/202407300117726.jpg)
 ------
-![](https://raw.githubusercontent.com/nakfc/ImageStorage/main/PicGo2024/202407300119695.png)
+![](https://raw.githubusercontent.com/nakfc/ImageStorage/main/PicGo2024/202407300119695.jpg)
 ------
 ![](https://raw.githubusercontent.com/nakfc/ImageStorage/main/PicGo2024/202407300123584.png)
 ------
